@@ -4,3 +4,7 @@ https://solbundle.app is the Solana Memecoin launchpad that uses a user-friendly
 https://sol-bundle.gitbook.io/overview/sol-bundle-app/introduction
 
 https://t.me/solana_meme_bundle
+
+https://discord.com/invite/WzYv623T3U
+
+https://x.com/sol_bundle
